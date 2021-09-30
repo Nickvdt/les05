@@ -1,6 +1,6 @@
 # **_Verse tomatensoep_**
 
-![](images/basis-tomatensoep.jpg)
+![](https://www.leukerecepten.nl/wp-content/uploads/2020/01/basis-tomatensoep.jpg)
 
 ## _benodigdheden voor 4 personen_
 - 1 ui (gesnipperd)
